@@ -12,6 +12,8 @@
 
 	Contact No. :- +919326853778  
 
-	Mail at :- sumitbiranje9@gmail.com
+	Mail :- sumitbiranje9@gmail.com
 
-	Linkedin:- https://www.linkedin.com/in/sumit-biranje-154101206/
+	Linkedin :- https://www.linkedin.com/in/sumit-biranje-154101206/
+	
+	Twitter :- https://twitter.com/biranje_sumit
